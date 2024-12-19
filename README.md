@@ -1,2 +1,1 @@
-Hi, I’m Aftab Ahmad
-I am a Google Certified Data Analyst with a Master of Commerce Degree. 
+Hi, I’m Aftab Ahmad Khan, a self-taught data professional with having Master of Commerce Degree. 
